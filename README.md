@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gengar682
+- 👋 Hi, I’m @amanbagle
 - 👀 I’m interested in character design for games
 - 🌱 I’m currently learning zbrsuh
 - 💞️ I’m looking to collaborate on ...
